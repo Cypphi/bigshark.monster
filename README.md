@@ -1,2 +1,2 @@
-# bigmonkey.monster
-https://bigmonkey.monster
+# bigears.monster
+https://bigears.monster
